@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+Blog do Gordim: Welcome to my blog
 ---
 
