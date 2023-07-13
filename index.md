@@ -1,4 +1,7 @@
 ---
+
+Blog do Gordim: Welcome to my blog
+=======
 A Importância da Musculação para a Saúde: Fortalecendo Corpo e Mente
 ---
 A musculação é uma forma de exercício físico que envolve o uso de pesos e resistência para fortalecer e tonificar os músculos. Além de ser amplamente conhecida por seus benefícios estéticos, a musculação desempenha um papel crucial na promoção da saúde geral do corpo e da mente. Nesta matéria, exploraremos a importância da musculação para a saúde e como ela pode trazer uma série de benefícios para aqueles que a praticam regularmente.
